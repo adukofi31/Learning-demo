@@ -1,3 +1,3 @@
 # DEMO
 
-Ishmael Aidoo is starting new career 
+Ishmael Aidoo is starting a new career. 
